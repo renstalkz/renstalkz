@@ -13,9 +13,15 @@ I **will** be using this for ~~ponyt~~own **^_^**
 
 Im __okay__ with cuddles with anyone/everyone but im ~~on~~**ly** okay with hiding if i <sup>know u</sup> or if <sub>u ask</sub>![image](https://github.com/user-attachments/assets/18e78ea3-c849-4137-9eb6-420910b624ec) ![image](https://github.com/user-attachments/assets/c8bacc57-69cc-49b6-89f7-6f10a0309949)
 
-do **not** ever copy my ponies, <sup>u can use them as inspo</sup> but ~~pls~~ dont copy 
+do **not** ever copy my ponies, <sup>u can use them as inspo</sup> but ~~pls~~ dont copy![image](https://github.com/user-attachments/assets/b6c1af2e-92ad-4b68-aa08-6fdd1898ff84)
+ 
+
+***BYI!!*** ![image](https://github.com/user-attachments/assets/1891a414-c008-4c0d-b5a9-9b2de394603f)
+ **I do have a typing quirk (s = z)** but if u get confused by it ~~really~~ easily i glad to stop using it for u^_^!! / ![image](https://github.com/user-attachments/assets/ace51d79-037b-4503-81a6-272f411b7804)
+I do make weird jokes sometimes so if u ever get uncomfortable with any of the jokes **PLS** let me know =33 ![image](https://github.com/user-attachments/assets/f412a3e0-e10a-410a-977f-249a4ad10697)
 
 
+***PLEASE*** __Interact if u like any of these/nf__ : **BTD, TPOF**, john doe, **Ranfren**, DDLC, NEEDY STREAMER OVERLOAD, <sub>OMORI</sub>, and etc
 
 
 ![image](https://github.com/user-attachments/assets/7196c628-2b8e-4b21-ae22-d75ff27562cf) ![image](https://github.com/user-attachments/assets/e34feadf-4a79-4d1c-9812-8e178901a4ce) ![image](https://github.com/user-attachments/assets/03590786-7e4c-49f5-930d-c41c2e15dfbc)
