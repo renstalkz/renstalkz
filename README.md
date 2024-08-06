@@ -32,7 +32,8 @@ I do make weird jokes sometimes so if u ever get uncomfortable with any of the j
 
 ![law!!](https://i.ibb.co/pfphpRM/Untitled-Project2-ezgif.png)
 
-![image](https://github.com/user-attachments/assets/c225bc47-9534-4961-b0d2-cd0ad65d9192)
+![image](https://github.com/user-attachments/assets/c225bc47-9534-4961-b0d2-cd0ad65d9192) ![image](https://github.com/user-attachments/assets/bef3b099-2522-43f8-80d4-2b4cce499f35)
+
 
 
 ![image](https://github.com/user-attachments/assets/173c4ff0-e96e-491f-a35a-095697cba92c)
