@@ -26,6 +26,8 @@ I do make weird jokes sometimes so if u ever get uncomfortable with any of the j
 
 ![image](https://github.com/user-attachments/assets/7196c628-2b8e-4b21-ae22-d75ff27562cf) ![image](https://github.com/user-attachments/assets/e34feadf-4a79-4d1c-9812-8e178901a4ce) ![image](https://github.com/user-attachments/assets/03590786-7e4c-49f5-930d-c41c2e15dfbc)
 
+![spotify-github-profile](/img/novatorem.svg)
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9k1p585lhqwnrgqh2jmya54fb&cover_image=true&theme=novatorem&show_offline=true&background_color=ff0000&interchange=false&bar_color=cc0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  ![cd2](https://gifs.crd.co/assets/images/gallery21/33f7fc0a.gif?v=ef433a6f)
 
 
