@@ -9,7 +9,7 @@
 I **will** be using this for ~~ponyt~~own **^_^** 
 
 
-![image](https://github.com/user-attachments/assets/073b9410-6f09-4940-9344-bb8e48e00987) Please call me <sup>**ren**</sup>, <sub>kasperr</sub>, ~~kai~~ze, or fox *~~!!~~* ![image](https://github.com/user-attachments/assets/c408b9d0-4b32-43ed-b792-eb7a76593307)
+![image](https://github.com/user-attachments/assets/073b9410-6f09-4940-9344-bb8e48e00987) Please call me <sup>**ren**</sup>, <sub>kasperr</sub>, ~~kai~~ze, or karkat *~~!!~~* (or just call me by what my skin is of) ![image](https://github.com/user-attachments/assets/c408b9d0-4b32-43ed-b792-eb7a76593307)
 
 Im __okay__ with cuddles with anyone/everyone but im ~~on~~**ly** okay with hiding if i <sup>know u</sup> or if <sub>u ask</sub>![image](https://github.com/user-attachments/assets/18e78ea3-c849-4137-9eb6-420910b624ec) ![image](https://github.com/user-attachments/assets/c8bacc57-69cc-49b6-89f7-6f10a0309949)
 
@@ -21,7 +21,7 @@ do **not** ever copy my ponies, <sup>u can use them as inspo</sup> but ~~pls~~ d
 I do make weird jokes sometimes so if u ever get uncomfortable with any of the jokes **PLS** let me know =33 ![image](https://github.com/user-attachments/assets/f412a3e0-e10a-410a-977f-249a4ad10697)
 
 
-***PLEASE*** __Interact if u like any of these__ : **BTD, TPOF**, john doe, **Ranfren**, DDLC, NEEDY STREAMER OVERLOAD, <sub>OMORI</sub>, and etc
+***PLEASE*** __Interact if u like any of these__ : **BTD, TPOF**, **Homestuck**, john doe, **Ranfren**, DDLC, NEEDY STREAMER OVERLOAD, <sub>OMORI</sub>, and etc
 
 
 ![image](https://github.com/user-attachments/assets/7196c628-2b8e-4b21-ae22-d75ff27562cf) ![image](https://github.com/user-attachments/assets/e34feadf-4a79-4d1c-9812-8e178901a4ce) ![image](https://github.com/user-attachments/assets/03590786-7e4c-49f5-930d-c41c2e15dfbc)
